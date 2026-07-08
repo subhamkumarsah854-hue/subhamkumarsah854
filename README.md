@@ -29,5 +29,7 @@ Currently working on data analysis projects.
 ---
 
 ## 📫 Connect With Me
-LinkedIn: https://www.linkedin.com/in/subham-kumar-sah-8876353b4/?isSelfProfile=true
+LinkedIn: https://www.linkedin.com/in/subham-kumar-sah-158071379/
 Email: subhamkumarsah854@gmail.com
+Email: subhamkr17ktr@gmail.com
+
